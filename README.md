@@ -1,6 +1,6 @@
 ## This is Kazuya!
 
-- I'm Kazuya Hayashi, half Japanese and Half Filipino, and i think i might have diarrhea-
+- I'm Kazuya Hayashi, and i think i might have diarrhea-
 
 -# i'm also an aspiring music artist!
 
